@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Bangalore and Manglore
+Hello, Welcome to great leaders from Dondole
